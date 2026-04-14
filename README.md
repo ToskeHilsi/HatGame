@@ -1,6 +1,10 @@
-this game is sorta like deltarune.
-is cool.
+rpg gam
 
-hat guy
 enemies and attacks:
 https://docs.google.com/document/d/1NuzIGR-939fkrCixo8UsSBKpoRuBheEb5U0P8alH5Sw/edit?usp=sharing
+
+Characters and NPCs:
+---
+
+Lore:
+---
